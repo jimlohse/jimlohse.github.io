@@ -1,4 +1,4 @@
 jimlohse.github.io
 ==================
 
-**Thanks for visiting my Github.io page!**
+**Thanks for visiting my Github.io page!** :grinning:
